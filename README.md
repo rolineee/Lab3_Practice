@@ -5,3 +5,7 @@ Hopefully I get this before my class.
 
 Editing it more to practice for tomorrow. 
 This has officially become my update diary for this lab LOL
+
+Testing 1, 2
+Still testing cuz pushing is a b
+kinda?
